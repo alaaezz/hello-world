@@ -1,3 +1,9 @@
 # hello-world
+
+Hi 
+
 Architect 
-An architect interested in art, environment and design a beautiful and unique buildings.
+
+interested in art, environment, buildings and anything unique and bizarre.
+
+the moon is a friend for the lonesome to talk to.
